@@ -1,6 +1,5 @@
 ### Hi there, I'm Danuphan 👋
 
-##### Due to my main account down repositary will re-uploading soon 
 
 
 
